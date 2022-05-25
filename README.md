@@ -3,9 +3,9 @@
 
 
 
-<h2 align="center"> Soy Joaquín Ignacio Díaz Peña 👋 </h2>
+<h2 align="center"> Soy Joaquín Ignacio Díaz Peña  </h2>
 
-## 😎 Lo que te puedo contar sobre mi
+<h2 align="center"> 😎 Lo que te puedo contar sobre mi 😎 </h2>
 
 Tengo 22 años y soy de nacionalidad chilena y actualmente me encuentro viviendo en coquimbo, empecé a estudiar en el año 2018; sin embargo, he estado toda mi vida en contacto directo con la PC. 
 Actualmente estoy aprendiendo a hablar japones y pienso luego aprender portugués. Espero poder trabajar en varios lugares fuera de Chile.
