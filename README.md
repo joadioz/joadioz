@@ -11,7 +11,7 @@ Tengo 32 años y soy de nacionalidad chilena y actualmente me encuentro viviendo
 Actualmente estoy aprendiendo a hablar japones y pienso luego aprender portugués. 
 Espero en un futuro lograr poder trabajar en varios lugares fuera de Chile.
 
-Egrese de la carrera en enero del 2022, no obstante aún no he hecho mi práctica debido a que he estado preprando algunos objetivos a largo plazo (10 años) y ahora mismo tengo muchas ganas de entrar a cualquier nuevo trabajo que me desafíe. 
+Egresé de la carrera en enero del 2022, no obstante aún no he hecho mi práctica debido a que he estado preprando algunos objetivos a largo plazo (10 años) y ahora mismo tengo muchas ganas de entrar a cualquier nuevo trabajo que me desafíe. 
 
 Espero que podamos trabajar.
 
