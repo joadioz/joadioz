@@ -7,10 +7,11 @@
 
 <h2 align="center"> 😎 Lo que te puedo contar sobre mi 😎 </h2>
 
-Tengo 22 años y soy de nacionalidad chilena y actualmente me encuentro viviendo en coquimbo, empecé a estudiar en el año 2018; sin embargo, he estado toda mi vida en contacto directo con la PC. 
-Actualmente estoy aprendiendo a hablar japones y pienso luego aprender portugués. Espero poder trabajar en varios lugares fuera de Chile.
+Tengo 32 años y soy de nacionalidad chilena y actualmente me encuentro viviendo en coquimbo, empecé a estudiar en el año 2018; sin embargo he estado toda mi vida en contacto directo con la PC. 
+Actualmente estoy aprendiendo a hablar japones y pienso luego aprender portugués. 
+Espero en un futuro lograr poder trabajar en varios lugares fuera de Chile.
 
-Terminé la carrera en enero del 2022 aún no he hecho mi práctica debido a que he estado haciendo 4 cosas que son uno de mis objetivos a largo plazo (10 años) y ahora mismo tengo muchas ganas de cualquier trabajo que me desafíe. 
+Egrese de la carrera en enero del 2022, no obastnte aún no he hecho mi práctica debido a que he estado preprando algunos objetivos a largo plazo (10 años) y ahora mismo tengo muchas ganas de entrar a cualquier nuevo trabajo que me desafíe. 
 
 Espero que podamos trabajar.
 
