@@ -15,6 +15,8 @@ Egresé de la carrera en enero del 2022, no obstante aún no he hecho mi prácti
 
 Espero que podamos trabajar.
 
+Aquí se encuentra una página de muestra de algunos proyectos:  <br />
+<h3 align="center">  https://joadioz.github.io/main.html </h3> 
 
 ### Objetivos 202X
 
